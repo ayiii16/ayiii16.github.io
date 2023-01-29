@@ -3,7 +3,7 @@
 
 **LG ARROWSMITH**
 
-![alt text](https://i.pinimg.com/564x/be/86/f4/be86f48b738032ef4a116e665a994bc3.jpg)
+![alt text](https://i.pinimg.com/564x/59/84/d9/5984d902871b0386a3981c09bfa0a997.jpg)
 
 Playlist💕
 <iframe style="border-radius:12px" src="https://open.spotify.com/embed/playlist/4kO0fCFajCTgOSl8NTDz4F?utm_source=generator" width="100%" height="352" frameBorder="0" allowfullscreen="" allow="autoplay; clipboard-write; encrypted-media; fullscreen; picture-in-picture" loading="lazy"></iframe>
